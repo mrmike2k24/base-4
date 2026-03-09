@@ -9,3 +9,4 @@ go so fast
 life is beautiful 
 dont worry bro
 time goes well
+today internet down
