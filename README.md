@@ -11,3 +11,4 @@ dont worry bro
 time goes well
 today internet down
 dont try this
+Life is not easy
